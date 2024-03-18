@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @X-Cypher-21
+- 👀 I’m interested in learning this software
